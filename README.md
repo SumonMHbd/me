@@ -4,7 +4,7 @@ My Portfolio: http://mhsumon.epizy.com
 
 Github: https://github.com/SumonMHbd
 
-Resume: https://bit.ly/3OBUCk4
+Resume: https://bit.ly/sumon_resume
 
 ==== My Skills ====
 
