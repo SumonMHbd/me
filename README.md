@@ -34,7 +34,7 @@ Resume: https://bit.ly/sumon_resume
 
 ☛ Shopify design
 
-☛ Poster, Banar, Post Design with Canva 
+☛ Poster, Banner and Cover Post Design with Canva
 
 
 These are my combined skills and strengths. Remember, the good news is that I'm here to assist you.😊
